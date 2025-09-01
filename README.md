@@ -12,6 +12,8 @@ sakinat.folorunso@oouagoiwoye.edu.ng
 
 **"Artificial Intelligence for Patient Data and Drug Safety: AI Insights for Safer Care"**
 
+Link to download the Mendeley Library Training Toolkit:     https://brand.elsevier.com/share/rgd6wqtqPBhBxEZhF7nx/assets/64458 
+
 ---
 
 ## 📂 Contents
